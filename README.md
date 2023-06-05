@@ -1,2 +1,5 @@
 # Tenth_group
-Our tenth group 
+
+Our tenth group !
+
+I love ☕, 🍕, 🍚.
